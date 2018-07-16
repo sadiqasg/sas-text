@@ -1,2 +1,2 @@
 ### Contributors
-1. [ Sadiq ] // https://twitter.com/elon_sask
+1. [ Sas ] (https://twitter.com/elon_sask)
