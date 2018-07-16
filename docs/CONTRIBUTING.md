@@ -1,2 +1,2 @@
 ### Contributors
-1. Sadiq (Saslamp)
+1. Saslamp (Sadiq)
